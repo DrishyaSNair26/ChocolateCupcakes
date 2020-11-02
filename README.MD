@@ -1,0 +1,1 @@
+These super moist chocolate cupcakes pack TONS of chocolate flavor in each cupcake wrapper! Made from simple everyday ingredients, this easy cupcake recipe will be your new favorite. For best results, use natural cocoa powder and buttermilk. These chocolate cupcakes taste completely over-the-top with chocolate buttercream with sprinkles!
